@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Akash Gupta. I have done dual degree(BS-MS) in Economics from IIT Kanpur.
+- I am interested in learning about DeFi.
+- You can reach me via email: aksgupta2015@outlook.com
